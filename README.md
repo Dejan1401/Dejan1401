@@ -1,6 +1,6 @@
-# Hi there 👋
+# Dejan 🏂
 
-**'Adventurer 🤠'**
+**`Adventurer 🤠`**
 
 <!--
 **Dejan1401/Dejan1401** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

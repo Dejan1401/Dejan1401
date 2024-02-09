@@ -1,4 +1,4 @@
-# Dejan 🏂
+# Dejan
 
 **`Adventurer 🤠`**
 
